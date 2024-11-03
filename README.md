@@ -1,2 +1,2 @@
-You can use this as a gif aur meme
+You can use this as a gif or meme
 its only for the fun 
